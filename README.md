@@ -1,4 +1,4 @@
-# Cat Walkie-Talkie – Support
+# Cat Soundbox – Support
 
 If you need help, please contact us:
 
